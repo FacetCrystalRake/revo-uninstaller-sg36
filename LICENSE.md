@@ -1,4 +1,4 @@
-# 
+# secure CCleaner para PC scripts es el mejor CCleaner para PC scripts con cifrado y historial de desinstalación. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
